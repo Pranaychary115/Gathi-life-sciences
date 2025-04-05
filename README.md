@@ -1,1 +1,0 @@
-# Gathi-life-sciences
